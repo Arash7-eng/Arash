@@ -54,7 +54,10 @@ Then one more sir address us and one more and so on
 One sir who give us such a very very 
 kind thoughts and memories which I cannot 
 forgot in my life .All VIPS honoured 
-with prize .
+with prize. 
+
+##Blog Post
+[View my blog](
 
 **End**
 
